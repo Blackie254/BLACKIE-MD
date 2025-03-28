@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  <img alt="FLASH-MD" width="700" height="300" src="https://files.catbox.moe/tvo4g6.jpg">
+  <img alt="FLASH-MD" width="700" height="300" src="https://i.imgur.com/aiCF3o6.jpeg">
 </p>
 
 ---
