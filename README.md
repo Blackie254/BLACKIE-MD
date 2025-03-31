@@ -1,10 +1,10 @@
-
 # BLACK MERCHANT 𝙼𝙳 𝙱𝙾𝚃
+
 
 
 ## 𝚃𝙷𝙸𝚂 𝙱𝙾𝚃 𝙸𝚂 𝙲𝚁𝙴𝙰𝚃𝙴𝙳 𝙱𝚈 𝙾𝙵𝙵𝙸𝙲𝙸𝙰𝙻-BLACK MERCHANT 
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=𝙲𝚁𝙴𝙰𝚃𝙴𝙳+𝙱𝚈BLACK MERCHANT  +☠︎︎)](https://git.io/typing-svg) 
+
 
 
 
