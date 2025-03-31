@@ -1,133 +1,61 @@
-# BLACK MERCHANT 𝙼𝙳 𝙱𝙾𝚃
+BLACKMACHANT MD
 
-
-
-## 𝚃𝙷𝙸𝚂 𝙱𝙾𝚃 𝙸𝚂 𝙲𝚁𝙴𝙰𝚃𝙴𝙳 𝙱𝚈 𝙾𝙵𝙵𝙸𝙲𝙸𝙰𝙻-BLACK MERCHANT 
-
-
-
-
-
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=BLACK MERCHANT 𝙼𝙳 𝙱𝙾𝚃𝙲𝚁𝙴𝙰𝚃𝙴𝙳+𝙱𝚈+𝙾𝙵𝙵𝙸𝙲𝙸𝙰 PEREZ+☠︎︎)](https://git.io/typing-svg) 
-
-<p align="centre"><img src="https://files.catbox.moe/vi124q.jpg"
-
-
-
-
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-
-
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-
-## 𝙷𝙴𝚁𝙴 𝙸𝚂 𝚃𝙷𝙴 𝙿𝚁𝙾𝙶𝚁𝙴𝚂𝚂 𝙵𝙾𝚁 BLACK MERCHANT 𝙼𝙳 𝙱𝙾𝚃
-
-
-<p align="center">
-<a href="https://github.com/djbheron100/followers"><img title="Followers" src="https://files.catbox.moe/s5nuh3.jpg?color=blue&style=flat-square"></a>
-<a href="https://github.com/djbheron100/QUEEN-MD/stargazers/"><img title="Stars" src="https://img.shields.io/github/stars/djbheron100/Bheron-MD?color=blue&style=flat-square"></a>
-<a href="https://github.com/djbheron100/Bheron-MD/network/members"><img title="Forks" src="https://img.shields.io/github/forks/djbheron100/Bheron-MD?color=blue&style=flat-square"></a>
-<a href="https://github.com/djbheron100/Bheron-MD/"><img title="Size" src="https://img.shields.io/github/repo-size/djbheron100/Bheron-MD?style=flat-square&color=blue"></a>
-<a href="https://github.com/djbheron100/QUEEN-MD/graphs/commit-activity"><img height="20" src="https://img.shields.io/badge/Maintained%3F-yes-green.svg"></a>&nbsp;&nbsp;
-</p>
-<p align='center'>
-</p>
-
- <p align="center"><img src="https://files.catbox.moe/s5nuh3.jpg" alt="djbheron100 :: Visitor's Count" old_src="https://profile-counter.glitch.me/{queen}/count.svg" /></p>
-
-
-
-
-
-
-## 𝙷𝙾𝚆 𝚃𝙾 𝙶𝙴𝚃 BLACK MERCHANT 𝙼𝙳 𝙱𝙾𝚃 
-
-  
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=green&lines=𝗙𝗢𝗥𝗞+𝗔𝗡𝗗+𝗦𝗧𝗔𝗥+𝗥𝗘𝗣𝗢)](https://git.io/typing-svg)
- 
-
-  
-   
-   <a href="https://github.com/djbheron100/Bheron-MD/fork"><img title="FORK-REPO" src="https://img.shields.io/badge/FORK-REPO-h?color=green&style=for-the-badge&logo=tesla" width="297" height="40.45"/></a></p>
-
-
-<a><img src='https://files.catbox.moe/s5nuh3.jpg'/></a>
-
- 
- 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=☠︎︎☠︎︎green&lines=𝗦𝗘𝗦𝗦𝗜𝗢𝗡+𝗜𝗗+𝗦𝗜𝗧𝗘+𝗜𝗦+𝗛𝗘𝗥𝗘)](https://git.io/typing-svg)
- 
-
-
-  <a href="https://bheron-md-2.onrender.com/pair"><img title="GET-SESSION ID HERE" src="https://img.shields.io/badge/GET-SESSION ID HERE-h?color=green&style=for-the-badge&logo=adidas" width="230" height="38.45"/></a></p>
-
-  
-  <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=green&lines=𝐃𝐄𝐏𝐋𝐎𝐘+𝐎𝐍+𝐇𝐄𝐑𝐎𝐊𝐔)](https://git.io/typing-svg)
-
-
- 
-  
-
- 
-## 𝙵𝙾𝚁 𝙾𝙽𝙴-𝚃𝙰𝙿 𝙳𝙴𝙿𝙻𝙾𝚈𝙼𝙴𝙽𝚃 𝚄𝚂𝙴 𝚃𝙷𝙸𝚂 𝙱𝚄𝚃𝚃𝙾𝙽
-
-   🕳IF YOU DON'T HAVE A HEROKU ACCOUNT...CREATE ONE
-   
-   <a href="https://signup.heroku.com/"><img title="CREATE-ACCOUNT" src="https://img.shields.io/badge/CREATE-ACCOUNT-h?color=blue&style=for-the-badge&logo=heroku" width="180" height="43.45"/></a></p>
-
-   ☢️IF YOU ALREADY HAVE A HEROKU ACCOUNT...DEPLOY NOW
-
- <a href="https://dashboard.heroku.com/new?template=https://github.com/djbheron100/Bheron-MD"><img title="DEPLOY-ON HEROKU" src="https://img.shields.io/badge/DEPLOY-ON HEROKU-h?color=purple&style=for-the-badge&logo=heroku" width="220" height="38.45"/></a></p>
-
- 
- [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=bεlίεvεɖ+ᵗʰᵃᵗ+ί+αɱ+ŋᴏthiŋg+but+ηօ+օηε+lίkε+ɱε)](https://git.io/typing-svg) 
-
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-
-
-
-</a>
-   𝙹𝙾𝙸𝙽 𝙼𝚈 𝚆𝙷𝙰𝚃𝚂𝙰𝙿𝙿 𝙶𝚁𝙿 𝙵𝙾𝚁 𝚄𝙿𝙳𝙰𝚃𝙴𝚂
-
-<a
-href="https://chat.whatsapp.com/ETRxZtsoOtxHZekpW7x6Nk" target="blank"><img
- align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/whatsapp.svg" alt="𝚄𝙿𝙳𝙰𝚃𝙴" height="60" width="70" /></a>
-
-
-
-## 𝙲𝙾𝙽𝚃𝙰𝙲𝚃 𝙾𝙵𝙵𝙸𝙲𝙸𝙰𝙻 𝙱𝙷𝙴𝚁𝙾𝙽 𝙷𝙴𝚁𝙴
- 
-   
-   <a href="https://wa.me/27610822140">
-    <img src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
-  </a>&nbsp;&nbsp;
-   <a
-
-   ## 𝙰𝚂𝙺 𝙰𝙽𝚈 𝚃𝙷𝙸𝙽𝙶
-
-
-
-
-
-
-
-</div>
-
-
-
-
-
-
-<p align="center">
-    <a href="https://whatsapp.com/channel/0029VadbcXREFeXq720tTN0D">
-        <img height="30" title="Support Group" src="https://img.shields.io/badge/Support%20Group-25D366?style=for-the-badge&logo=whatsapp&logoColor=white">
-    </a>
-</p>
 
 <div align="center">
-    <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-    <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-</div>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=1BAFBAFF&center=true&width=910&height=100&lines=THIS  IS+PEREZ-MD;MULTI+DEVICE+WHATSAPP+BOT;CREATED+BY+IGNATIUS;PUBLIC+RELEASED; ...;TEAM BLACK MACHANT-𝙼𝙳." alt="Typing SVG" /></a>
+  </p>
+  
+<p align="center">
+<img src=": https://files.catbox.moe/s5nuh3.jpg" width="400" height="400"/>
+</p>
+<p align="center">
+  <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=d1fa02&center=true&vCenter=true&multiline=false&lines=BLACKMACHAT+WHATSAPP+BOT" alt="">
+</p>
+<p align="center">
+<a href="#"><img title="Creator" src="https://img.shields.io/badge/Creator-BLACK MACHANT-blue.svg?style=for-the-badge&logo=github"></a>
+<
+ 
 
+## CONTACT ME
+
+<p align="center">
+
+<a href="https://api.whatsapp.com/send?phone=254108098259&text=Hello+N꙰i꙰c꙰k꙰༆"><img src="https://img.shields.io/badge/Contact Perez-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+
+
+***This bot is created with the help of NodeJS and uses [Baileys](https://github.com/whiskeysockets/Baileys)***
+
+## FEATURES
+This is a highly customisable simple whatsapp bot with group management features and few media commands and chatgpt courtesy of Gemini.
+
+Our AI features use random APIs to run, so sometimes they may be down.
+
+# SET-UP
+
+Linking/Pairing:
+## ` Pair onrender`
+[𝗛𝗘𝗥𝗘](https://perez-md-pairing.onrender.com)
+            
+    
+
+
+###  𝗗𝗘𝗣𝗟𝗢𝗬 𝗢𝗡 𝗛𝗘𝗥𝗢𝗞𝗨:
+
+
+  *[![Tap to deploy on heroku](https://www.herokucdn.com/deploy/button.svg)](https://dashboard.heroku.com/new?template=https://github.com/Ignatiusperez/Perez/tree/main))***
+ 
+
+    
+
+- Fill in the required variables into your hosting site for bot to work.
+ </h2>
+     
+
+    
+ 
+<div align="center">
+
+
+
+
+## License
