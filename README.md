@@ -1,97 +1,133 @@
-# BLACKIE-MD
-<h1 align="center" style="color: #FF6347;">BLACK MARCHANT MD</h1>
+
+# BLACK MERCHANT 𝙼𝙳 𝙱𝙾𝚃
+
+
+## 𝚃𝙷𝙸𝚂 𝙱𝙾𝚃 𝙸𝚂 𝙲𝚁𝙴𝙰𝚃𝙴𝙳 𝙱𝚈 𝙾𝙵𝙵𝙸𝙲𝙸𝙰𝙻-BLACK MERCHANT 
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=𝙲𝚁𝙴𝙰𝚃𝙴𝙳+𝙱𝚈BLACK MERCHANT  +☠︎︎)](https://git.io/typing-svg) 
+
+
+
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=BLACK MERCHANT 𝙼𝙳 𝙱𝙾𝚃𝙲𝚁𝙴𝙰𝚃𝙴𝙳+𝙱𝚈+𝙾𝙵𝙵𝙸𝙲𝙸𝙰 PEREZ+☠︎︎)](https://git.io/typing-svg) 
+
+<p align="centre"><img src="https://files.catbox.moe/vi124q.jpg"
+
+
+
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+
+## 𝙷𝙴𝚁𝙴 𝙸𝚂 𝚃𝙷𝙴 𝙿𝚁𝙾𝙶𝚁𝙴𝚂𝚂 𝙵𝙾𝚁 BLACK MERCHANT 𝙼𝙳 𝙱𝙾𝚃
+
 
 <p align="center">
-  <a href="https://git.io/typing-svg">
-    <img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=1BAFBAFF&center=true&width=910&height=100&lines=THANKS+FOR+CHOOSING+BLACKIE-MD;MULTI+DEVICE+WHATSAPP+BOT;CREATED+BY+BLACKIE+;RELEASED+22.2.202" alt="Typing SVG" />
-  </a>
+<a href="https://github.com/djbheron100/followers"><img title="Followers" src="https://files.catbox.moe/s5nuh3.jpg?color=blue&style=flat-square"></a>
+<a href="https://github.com/djbheron100/QUEEN-MD/stargazers/"><img title="Stars" src="https://img.shields.io/github/stars/djbheron100/Bheron-MD?color=blue&style=flat-square"></a>
+<a href="https://github.com/djbheron100/Bheron-MD/network/members"><img title="Forks" src="https://img.shields.io/github/forks/djbheron100/Bheron-MD?color=blue&style=flat-square"></a>
+<a href="https://github.com/djbheron100/Bheron-MD/"><img title="Size" src="https://img.shields.io/github/repo-size/djbheron100/Bheron-MD?style=flat-square&color=blue"></a>
+<a href="https://github.com/djbheron100/QUEEN-MD/graphs/commit-activity"><img height="20" src="https://img.shields.io/badge/Maintained%3F-yes-green.svg"></a>&nbsp;&nbsp;
 </p>
+<p align='center'>
+</p>
+
+ <p align="center"><img src="https://files.catbox.moe/s5nuh3.jpg" alt="djbheron100 :: Visitor's Count" old_src="https://profile-counter.glitch.me/{queen}/count.svg" /></p>
+
+
+
+
+
+
+## 𝙷𝙾𝚆 𝚃𝙾 𝙶𝙴𝚃 BLACK MERCHANT 𝙼𝙳 𝙱𝙾𝚃 
+
+  
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=green&lines=𝗙𝗢𝗥𝗞+𝗔𝗡𝗗+𝗦𝗧𝗔𝗥+𝗥𝗘𝗣𝗢)](https://git.io/typing-svg)
+ 
+
+  
+   
+   <a href="https://github.com/djbheron100/Bheron-MD/fork"><img title="FORK-REPO" src="https://img.shields.io/badge/FORK-REPO-h?color=green&style=for-the-badge&logo=tesla" width="297" height="40.45"/></a></p>
+
+
+<a><img src='https://files.catbox.moe/s5nuh3.jpg'/></a>
+
+ 
+ 
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=☠︎︎☠︎︎green&lines=𝗦𝗘𝗦𝗦𝗜𝗢𝗡+𝗜𝗗+𝗦𝗜𝗧𝗘+𝗜𝗦+𝗛𝗘𝗥𝗘)](https://git.io/typing-svg)
+ 
+
+
+  <a href="https://bheron-md-2.onrender.com/pair"><img title="GET-SESSION ID HERE" src="https://img.shields.io/badge/GET-SESSION ID HERE-h?color=green&style=for-the-badge&logo=adidas" width="230" height="38.45"/></a></p>
+
+  
+  <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=green&lines=𝐃𝐄𝐏𝐋𝐎𝐘+𝐎𝐍+𝐇𝐄𝐑𝐎𝐊𝐔)](https://git.io/typing-svg)
+
+
+ 
+  
+
+ 
+## 𝙵𝙾𝚁 𝙾𝙽𝙴-𝚃𝙰𝙿 𝙳𝙴𝙿𝙻𝙾𝚈𝙼𝙴𝙽𝚃 𝚄𝚂𝙴 𝚃𝙷𝙸𝚂 𝙱𝚄𝚃𝚃𝙾𝙽
+
+   🕳IF YOU DON'T HAVE A HEROKU ACCOUNT...CREATE ONE
+   
+   <a href="https://signup.heroku.com/"><img title="CREATE-ACCOUNT" src="https://img.shields.io/badge/CREATE-ACCOUNT-h?color=blue&style=for-the-badge&logo=heroku" width="180" height="43.45"/></a></p>
+
+   ☢️IF YOU ALREADY HAVE A HEROKU ACCOUNT...DEPLOY NOW
+
+ <a href="https://dashboard.heroku.com/new?template=https://github.com/djbheron100/Bheron-MD"><img title="DEPLOY-ON HEROKU" src="https://img.shields.io/badge/DEPLOY-ON HEROKU-h?color=purple&style=for-the-badge&logo=heroku" width="220" height="38.45"/></a></p>
+
+ 
+ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=bεlίεvεɖ+ᵗʰᵃᵗ+ί+αɱ+ŋᴏthiŋg+but+ηօ+օηε+lίkε+ɱε)](https://git.io/typing-svg) 
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+
+
+
+</a>
+   𝙹𝙾𝙸𝙽 𝙼𝚈 𝚆𝙷𝙰𝚃𝚂𝙰𝙿𝙿 𝙶𝚁𝙿 𝙵𝙾𝚁 𝚄𝙿𝙳𝙰𝚃𝙴𝚂
+
+<a
+href="https://chat.whatsapp.com/ETRxZtsoOtxHZekpW7x6Nk" target="blank"><img
+ align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/whatsapp.svg" alt="𝚄𝙿𝙳𝙰𝚃𝙴" height="60" width="70" /></a>
+
+
+
+## 𝙲𝙾𝙽𝚃𝙰𝙲𝚃 𝙾𝙵𝙵𝙸𝙲𝙸𝙰𝙻 𝙱𝙷𝙴𝚁𝙾𝙽 𝙷𝙴𝚁𝙴
+ 
+   
+   <a href="https://wa.me/27610822140">
+    <img src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+  </a>&nbsp;&nbsp;
+   <a
+
+   ## 𝙰𝚂𝙺 𝙰𝙽𝚈 𝚃𝙷𝙸𝙽𝙶
+
+
+
+
+
+
+
+</div>
+
+
+
+
+
 
 <p align="center">
-  <img alt="FLASH-MD" width="700" height="300" src="https://i.imgur.com/aiCF3o6.jpeg">
+    <a href="https://whatsapp.com/channel/0029VadbcXREFeXq720tTN0D">
+        <img height="30" title="Support Group" src="https://img.shields.io/badge/Support%20Group-25D366?style=for-the-badge&logo=whatsapp&logoColor=white">
+    </a>
 </p>
 
----
+<div align="center">
+    <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+    <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+</div>
 
-### 🌟 **Repository Stats**:
-<p align="center">
-  <a href="https://github.com/franceking1/Flash-Md/stargazers">
-    <img src="https://img.shields.io/github/stars/franceking1/Flash-Md?style=for-the-badge&logo=github&color=ff9800" alt="Stars" />
-  </a>
-  <a href="https://github.com/franceking1/Flash-Md/network/members">
-    <img src="https://img.shields.io/github/forks/franceking1/Flash-Md?style=for-the-badge&logo=github&color=4CAF50" alt="Forks" />
-  </a>
-  <a href="https://github.com/franceking1/Flash-Md/watchers">
-    <img src="https://img.shields.io/github/watchers/franceking1/Flash-Md?style=for-the-badge&logo=github&color=2196F3" alt="Watchers" />
-  </a>
-  <a href="https://github.com/franceking1/Flash-Md/issues">
-    <img src="https://img.shields.io/github/issues/franceking1/Flash-Md?style=for-the-badge&logo=github&color=e91e63" alt="Issues" />
-  </a>
-  <a href="https://github.com/franceking1/Flash-Md/pulls">
-    <img src="https://img.shields.io/github/issues-pr/franceking1/Flash-Md?style=for-the-badge&logo=github&color=673AB7" alt="Pull Requests" />
-  </a>
-</p>
-
----
-
-### 🚀 **Quick Start:**
-
-1. **Star ⭐ & Fork** the Repo:
-   - **[Star](https://github.com/franceking1/Flash-Md)** & **[Fork](https://github.com/franceking1/Flash-Md/fork)** this repository to your GitHub account.
-
-2. **Get Your Session ID Using**:
-   - **[QR SCANNER](https://the-flash-scanner.onrender.com/)**
-   - **[Pairing Code 1](https://king-france.vercel.app/)**
-   - **[Pairing Code 2](https://the-flash-md-sessions.onrender.com/pair)**
-
-   > **⚠️ Important**: Copy your Session ID – you will need it for deployment.
-
----
-
-### 🚀 **Deploy to Heroku:**
-
-Now that you have your session ID, deploy the bot to Heroku:
-
-1. **Create a Heroku Account** (If you don’t have one):  
-   <p align="center">
-     <a href="https://signup.heroku.com">
-       <img src="https://img.shields.io/badge/Create%20Account%20Now-blue?style=for-the-badge&logo=heroku" width="220" height="38.45"/>
-     </a>
-   </p>
-
-2. **Deploy BLACK MD** Now (If you already have a Heroku account):  
-   <p align="center">
-     <a href="https://france-king.vercel.app">
-       <img src="https://img.shields.io/badge/DEPLOY%20NOW-blue?style=for-the-badge&logo=heroku" width="220" height="38.45"/>
-     </a>
-   </p>
-
----
-
-### ⚠️ **Disclaimer:**
-
-- **Modifying** or **redistributing** this script is **prohibited**.
-- **No support** will be provided for modified versions.
-
----
-
-### 🛠 **Need Help?**
-
-If you face any issues or need assistance:
-- **[Click here for support](https://messages-snowy.vercel.app)**
-
----
-
-### 🙏 **Special Thanks:**
-
-Huge thanks to these amazing contributors:
-
-- [**Fortunatus Mokaya**](https://github.com/Fortunatusmokaya) – For adding awesome commands.
-- [**Gifted Tech**](https://github.com/mouricedevs) – For session generation support.
-- [**Suhail Ser**](https://github.com/SuhailTechInfo) – For code encryption improvements.
-- [**Luffy**](https://github.com/Luffy2ndAccount) – For providing the base code of **Flash-MD**.
-
----
-
-### 🎉 **Thank You for Choosing BLACKIE MD!**
- © 2025 **All Rights Reserved**
